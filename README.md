@@ -74,7 +74,7 @@ For queries or collaboration:
 Name: Divyansh Shukla
 Email: Shivaay23102005@gmail.com
 
-LinkedIn: https://linkedin.com/in/your-profile
+LinkedIn: https://www.linkedin.com/in/divyansh-shukla2310
 
 ⭐ Acknowledgement
 
